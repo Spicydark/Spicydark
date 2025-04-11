@@ -2,7 +2,7 @@
 - 👀 I’m interested in Coding,Developing,Learning
 - 🌱 I’m currently learning Java,Fullstack
 - 💞️ I’m looking to collaborate with where i can i get knowledge 
-- 📫 How to reach me @sury.71772114314@gct.ac.in
+- 📫 How to reach me @surya.thenmozhi04@gmail.com
 - ⚡ Fun fact: Biggest procrastinator
 
 <!---
